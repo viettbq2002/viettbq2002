@@ -6,7 +6,7 @@
 
 - 📫 My email **thaibinhquocviet2002@gmail.com**
 
-- ⚡ Fun fact **I also love music and play guitar ,In free time, I often attend music events and show in my city as a guitarist**
+- ⚡ In my free time **I also love music and play guitar**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
